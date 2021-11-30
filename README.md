@@ -15,5 +15,5 @@ If you want to contact with me then you can use any convenient way:
 
 Vk | Discord | Telegram | Email
 --- | --- | --- | ---
-[`@zeforus`](https://vk.com/zeforus) | `qPexLegendary#6540` | [`@qPexLegendary`](https://t.me/qPexLegendary) | `terentev.andrey.2002@gmail.com`
+[`@zeforus`](https://vk.com/zeforus) | `qPi#6540` | [`@qPexLegendary`](https://t.me/qPexLegendary) | `terentev.andrey.2002@gmail.com`
 
